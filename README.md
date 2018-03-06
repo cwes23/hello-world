@@ -1,2 +1,3 @@
 # hello-world
 new 
+im still learning this chromebook.... im gonna root it before the night is over...
